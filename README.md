@@ -1,3 +1,5 @@
+# SynapseX 2025 - Free and Powerful!
+
 ![photo_2025-03-20_20-33-36](https://github.com/user-attachments/assets/e109fd8e-f445-48aa-85a2-fb4ebc919324)
 
 # Synapse X
